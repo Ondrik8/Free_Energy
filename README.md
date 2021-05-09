@@ -30,7 +30,7 @@ https://www.youtube.com/embed/6WZNIWwHym0<br>
 # make [Whiskey] SAMOGON
 а, как это? Жить и не весялится!?))
 
-<br>
+
 ![sam](sam.jpg)
 
 https://www.youtube.com/channel/UC5C-JDduUzdbBhUS-9iHxvw
