@@ -20,6 +20,8 @@ https://www.youtube.com/channel/UCiU8rgaBt7em6P8XK-jRLCg<br>
 # Добываем горючие вещества: бензин, керосин, салярку из мусора.
 
 
+![Benzine](benzine.jpg)
+
 https://www.youtube.com/embed/6WZNIWwHym0<br>
 
 
