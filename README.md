@@ -35,7 +35,7 @@ https://www.youtube.com/embed/6WZNIWwHym0<br>
 
 https://www.youtube.com/channel/UC5C-JDduUzdbBhUS-9iHxvw
 
-# make DMT 
+# make DMT [ACID]
 
 ![dmt](dmt1.jpg)
 
