@@ -34,3 +34,9 @@ https://www.youtube.com/embed/6WZNIWwHym0<br>
 ![sam](sam.jpg)
 
 https://www.youtube.com/channel/UC5C-JDduUzdbBhUS-9iHxvw
+
+# make DMT 
+
+![dmt](dmt1.jpg)
+
+https://www.youtube.com/watch?v=oQajN60i4Ek
