@@ -27,7 +27,7 @@ https://www.youtube.com/embed/6WZNIWwHym0<br>
 
 
 
-# make [Whiskey] SAMOGOM
+# make [Whiskey] SAMOGON
 ![sam](sam.jpg)
 
 https://www.youtube.com/channel/UC5C-JDduUzdbBhUS-9iHxvw
