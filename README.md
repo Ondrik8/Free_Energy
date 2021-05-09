@@ -25,3 +25,9 @@ https://www.youtube.com/channel/UCiU8rgaBt7em6P8XK-jRLCg<br>
 https://www.youtube.com/embed/6WZNIWwHym0<br>
 
 
+
+
+# make [Whiskey] SAMOGOM
+![sam](sam.jpg)
+
+https://www.youtube.com/channel/UC5C-JDduUzdbBhUS-9iHxvw
